@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 👋 About Me:
 IT Student | Learner | Building projects, solving problems, and learning every day.<br>i'm always nonlinear
 
 
